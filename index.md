@@ -2,3 +2,4 @@
 ## moins bien 
 ### la c'est nul...
 c'est fou tout ça!
+![tarpin stylé](https://static.wikia.nocookie.net/armoredcore/images/2/2a/Aca03.jpg/revision/latest?cb=20101119234439)https://static.wikia.nocookie.net/armoredcore/images/2/2a/Aca03.jpg/revision/latest?cb=20101119234439)

@@ -8,3 +8,7 @@ c'est fou tout ça!
 ```
 comment on s"en bat les c
 ```
+
+- [x] connaitre l'ultime vérité
+- [ ] agir en conséquence
+- [x] comprendre Son importance
